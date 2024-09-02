@@ -1,0 +1,1 @@
+@CrossOrigin(origin="*") dành cho api
