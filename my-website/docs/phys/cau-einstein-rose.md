@@ -1,0 +1,1 @@
+Theo thuyết vũ trụ, Cầu Einstein –Rosen là khoảng không giống như một đường hầm. Nhờ các đường hầm này mà các vùng khác nhau của vũ trụ được nối liền với nhau. Các nhà khoa học nhận thấy rằng đường hầm này nối hố đen với đầu kia chính là hố trắng.

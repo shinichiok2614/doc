@@ -1,0 +1,1 @@
+Sao neutron được cho là lõi thu gọn của các siêu khổng lồ, được tạo ra bởi các vụ nổ siêu tân tinh, với bán kính khoảng 10 km và khối lượng bằng 1,4 mặt trời. Chúng được giữ lại với nhau bởi một hiện tượng gọi là “áp suất suy biến nơtron” và sụp đổ nếu khối lượng của chúng vượt quá một giới hạn nhất định
